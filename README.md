@@ -1,0 +1,1 @@
+# ulta-piramid-1ta-kore-koma-pattern-print
